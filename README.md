@@ -1,5 +1,5 @@
 ## Hi there 👋
-hii there
+hey its me sneha.hehehe
 
 **snehapoudel220-ctrl/snehapoudel220-ctrl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
